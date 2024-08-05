@@ -1,4 +1,4 @@
-# So erhältst du gratis Würfel für Monopoly Go: Tipps und Tricks
+# Gratis-Würfel und kostenlose Würfel-Links (August 2024)
 
 ## [KLICKEN SIE HIER](https://lookerstudio.google.com/s/vubtIUBp5Lk)
 ## [KLICKEN SIE HIER](https://lookerstudio.google.com/s/vubtIUBp5Lk)
